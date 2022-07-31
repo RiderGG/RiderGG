@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RiderGG
+- 👋 Hi, I’m @Spooky_MazeWP
 - 👀 I’m interested in GAMES
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on nothing
